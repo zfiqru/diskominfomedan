@@ -1,0 +1,2 @@
+# diskominfomedan
+tugas
